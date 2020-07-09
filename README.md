@@ -1,0 +1,1 @@
+# eksik_g-zlem_analizi
